@@ -1,2 +1,3 @@
 # hello_world
 no clue what i'm doing or why but following along...
+Sixty-four yr. old minister and humanities professor, retired due to recent disability. (just following instructions - but interesting peek into another world)
